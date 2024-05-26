@@ -126,7 +126,7 @@ Bu gizlilik bildirimini zaman zaman güncelleyebiliriz. Güncellenmiş sürüm, 
 
 9. BU İLAN HAKKINDA BİZİMLE NASIL İLETİŞİME GEÇEBİLİRSİNİZ?
 
-Bu bildirimle ilgili sorularınız veya yorumlarınız varsa,bize e-posta gönderinomerr.arslan55@gmail.com veya posta yoluyla bize ulaşın:
+Bu bildirimle ilgili sorularınız veya yorumlarınız varsa,bize e-posta gönderin. omerr.arslan55@gmail.com veya posta yoluyla bize ulaşın:
 
 Türkçe sözlük
 Merkez/Tokat
